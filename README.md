@@ -18,9 +18,9 @@ We always have a bunch of young bulls, heifers and cows available for sale.
 
 How to reach us: 
 
-- 📫 alan@catlane.co.uk
-- [+44 (0)7508 739340](tel:+447508739340)
-- [+44 (0)1530 260315](tel:+441530260315)
+- 📫   alan@catlane.co.uk
+- 📱   [+44 (0)7508 739340](tel:+447508739340)
+- ☎️  [+44 (0)1530 260315](tel:+441530260315)
 
 
 <!--
