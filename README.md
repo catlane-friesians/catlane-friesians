@@ -2,7 +2,7 @@
 
 # Catlane British Friesians is on GitHub
 
-!https://catlane.co.uk/images/flickr/4395113313_c1eab0968b_o.jpg?zz=1!
+![](https://catlane.co.uk/images/flickr/4395113313_c1eab0968b_o.jpg?zz=1)
 
 Yes, really. Just because we are farmers, doesn't mean we can't do software.
 
