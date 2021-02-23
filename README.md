@@ -8,11 +8,11 @@ Yes, really. Just because we are farmers, doesn't mean we don't appreciate softw
 
 In fact, [our website](https://catlane.co.uk) is hosted on Github.
 
-## [British Frisian Bulls For Sale](https://catlane.co.uk/for-sale/)
+## [British Friesian Bulls For Sale](https://catlane.co.uk/for-sale/)
 
 We always have a bunch of young bulls, heifers and cows available for sale.
 
-- [British Frisian Bulls For Sale](https://catlane.co.uk/for-sale/)
+- [British Friesian Bulls For Sale](https://catlane.co.uk/for-sale/)
 
 ## Contact
 
